@@ -1,0 +1,1 @@
+# Projekt_TEXAN_from_Pycharm
